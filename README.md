@@ -15,5 +15,7 @@ Karta graficzna geforce 4 mx 32 mb.
 Licencja użytkowania znajduje się w grze.
 Graz zawiera muzykę z legalnych otwartych żródeł.
 
+Link do pobrania: https://drive.google.com/file/d/1hcZyOZ6wkRagceT_IXj2ZrO13J5O_L8E/view?usp=sharing
+
 
 
